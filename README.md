@@ -1,1 +1,1 @@
-Hello, World!
+No pain, No gain
